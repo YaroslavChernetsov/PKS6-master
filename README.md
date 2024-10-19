@@ -8,6 +8,8 @@
 ![Снимок экрана (263)](https://github.com/user-attachments/assets/3c3f753a-ea1d-4681-8480-348926f6d828)
 ![Снимок экрана (264)](https://github.com/user-attachments/assets/31ff2eea-da78-4c25-99c8-91c7dfee662b)
 ![Снимок экрана (265)](https://github.com/user-attachments/assets/4198806f-1c9e-46e1-b9ba-893fa7adb234)
+![Снимок экрана (257)](https://github.com/user-attachments/assets/8b9b8e33-7b98-4c7f-827c-9f62a6fa350c)
+
 ![Снимок экрана (266)](https://github.com/user-attachments/assets/c7ec1c13-eace-4fbd-b0d7-7d1e1d641ea9)
 
 
